@@ -1,2 +1,2 @@
 # Certifications
-All my Technology Certifications
+All my Technology and Business Management Certifications
